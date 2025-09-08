@@ -1,4 +1,4 @@
-#https://impracticalclickers.tech/
+https://impracticalclickers.tech/
 
 ![Alt text](https://cloud-c2muth0r3-hack-club-bot.vercel.app/0image.png)
 
